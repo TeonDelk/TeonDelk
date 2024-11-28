@@ -13,4 +13,4 @@ I'm passionate about securing digital spaces and tackling modern security challe
 - Contribute to open-source projects  
 
 📫 **Contact me:**  
-[LinkedIn](http://linkedin.com/in/teon-delk-500548332) | [Email](mailto:your-email@example.com)
+[LinkedIn](http://linkedin.com/in/teon-delk-500548332) | [Email](mailto:tdelk@aggies.ncat.edu)
