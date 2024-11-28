@@ -1,4 +1,4 @@
-# Hi there, I'm Teon Delk! 👋  
+# Hi there, I'm Teon Delk! 👋🏾  
 
 🎓 **Computer Science Major** | 🛡️ **Cybersecurity Enthusiast**  
 
